@@ -13,3 +13,12 @@ redrew that old shit of salv
 omg johsep
 
 his skin is blu its just the saturation im crne
+
+
+
+<img width="1289" height="1502" alt="Untitled302_20260602155927~2" src="https://github.com/user-attachments/assets/f07a4be4-aef7-43ac-ae34-c7874c3e268e" />
+
+
+
+
+YUE FINALLY YUE
