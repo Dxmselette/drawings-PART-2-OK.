@@ -47,3 +47,14 @@ me when I don't feel like drawing female anatomy? cover it with long hair.
 matthias redesign YO?
 
 
+
+
+
+<img width="2048" height="2048" alt="Untitled338_20260610142735" src="https://github.com/user-attachments/assets/ed0ce1ab-bacd-4dca-a9c4-a2aa8a36a53b" />
+
+
+
+
+
+esther after literally slacking off and avoiding drawing her
+
