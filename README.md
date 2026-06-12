@@ -71,4 +71,19 @@ esther after literally slacking off and avoiding drawing her
 
 
 
-kinda requested by oomf RY GO SERVE WLAY KING GAURRRRR~~~👄👄 ok im sorry 
+kinda requested by oomf RY GO SERVE sLAY KING GAURRRRR~~ ok im sorry 
+
+
+
+
+
+
+
+
+
+<img width="2560" height="1359" alt="Screenshot_20260612-104836~2" src="https://github.com/user-attachments/assets/91dba3e5-7313-40a0-9010-4206bfdd044a" />
+
+
+
+
+i love making interactive drawings tho
