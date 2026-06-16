@@ -107,16 +107,3 @@ THE HEIGHT DIFFERENCE IM SOBBING
 
 
 
-
-
-
-
-
-
-
-<img width="2048" height="2048" alt="Untitled366_20260616083435" src="https://github.com/user-attachments/assets/2cbb0ce6-1fe7-437a-b634-0593164a9371" />
-
-
-
-
-oh my god bro stop requesting freaky things🫩🥀🥀
