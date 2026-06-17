@@ -119,3 +119,18 @@ THE HEIGHT DIFFERENCE IM SOBBING
 
 
 ^^ might make a separate repo for student IDs!!
+
+
+
+
+
+
+<img width="2048" height="2048" alt="Untitled373_20260617140142" src="https://github.com/user-attachments/assets/a61d53d9-0f3d-4f8c-a092-f000c9a1fb75" />
+
+
+
+
+
+art collab when ur bored haha!! ok sorry
+
++ the base is meant to highlight the pose, you can change it.
