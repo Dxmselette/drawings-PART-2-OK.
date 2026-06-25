@@ -152,14 +152,6 @@ Constance haha okay sorry haha
 
 
 
-<img width="2048" height="2048" alt="Untitled388_20260619143218" src="https://github.com/user-attachments/assets/ade18b11-59bd-45c0-86d4-bebfc7d24559" />
-
-
-
-
-Hey i would throw a book at my fine shyt's face too if i saw him sitting like this💔
-
-
 
 
 <img width="2048" height="2048" alt="Untitled403_20260620232150" src="https://github.com/user-attachments/assets/bf64faef-9e49-4ed1-985e-7e3829b21f96" />
@@ -207,3 +199,15 @@ mmmmm ok
 
 
 aww its ok lucien u look...cute.
+
+
+
+
+
+
+
+<img width="2048" height="2048" alt="Untitled449_20260625213109" src="https://github.com/user-attachments/assets/03951d76-afe3-41ae-85f5-7091303b3c3b" />
+
+
+
+oh my god
