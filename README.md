@@ -80,3 +80,15 @@ aww its ok lucien u look...cute.
 
 
 oh my god
+
+
+
+
+<img width="640" height="640" alt="Untitled461_20260627163426" src="https://github.com/user-attachments/assets/31627661-65dd-4642-b589-bb9e0771f60e" />
+
+
+
+
+
+
+i love whiteboard fox.
