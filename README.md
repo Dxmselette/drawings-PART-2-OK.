@@ -81,3 +81,17 @@ frederick....drools
 
 
 ni hao fine shyt🔥🔥🔥
+
+
+
+
+
+
+
+<img width="2048" height="2048" alt="Untitled518_20260705151229" src="https://github.com/user-attachments/assets/ce7eeb84-458b-4b92-886a-b9dad4c83c36" />
+
+
+
+
+
+they interacted...oh no
